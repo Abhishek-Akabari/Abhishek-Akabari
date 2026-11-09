@@ -23,3 +23,7 @@ I'm a data and AI graduate based in London (MSc Artificial Intelligence, Brunel 
 ## Contact
 
 [LinkedIn](https://www.linkedin.com/in/abhishek-akabari-1ba63626b) · abhisheksanjaybhaiakabari@gmail.com
+
+## Awards
+
+🏆 **Leadership Award**, Brunel READY Programme 2025–26 (Dec 2025): led my team in developing solutions to support the wellbeing and resilience of internally displaced people in Afghanistan, with the Afghanistan & Central Asian Association.
